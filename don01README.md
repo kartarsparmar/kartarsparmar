@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @frooti
+- 👀 I’m interested in learning how to create a compatible world. 
